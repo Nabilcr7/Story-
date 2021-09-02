@@ -1,0 +1,1 @@
+Once a crow was thirsty i a sunny day . And he saw a pot half filled with water and he could not reach the water .
