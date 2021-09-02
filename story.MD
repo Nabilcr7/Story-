@@ -1,1 +1,2 @@
 Once a crow was thirsty i a sunny day . And he saw a pot half filled with water and he could not reach the water .
+So he had an idea of throwing some pebbles in the pot ,so he could reach the water .And he flew happily. 
